@@ -1,1 +1,2 @@
 Ashley Quarford
+quarfora@oregonstate.edu
